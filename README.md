@@ -25,7 +25,7 @@ A tonneau cover is a protective covering for a truck bed, designed to safeguard 
 
 ## **Soft Tonneau Covers**
 
-[Soft tonneau covers]([)](https://bisontonneaucovers.com/collections/bison-tonneau-covers) are made from flexible materials like vinyl or canvas. They are available in roll-up, folding, or snap-on styles.
+[Soft tonneau covers](https://bisontonneaucovers.com/collections/bison-tonneau-covers) are made from flexible materials like vinyl or canvas. They are available in roll-up, folding, or snap-on styles.
 
 ### **Advantages:**
 
